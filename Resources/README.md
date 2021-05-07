@@ -1,0 +1,1 @@
+Resources that are linked in the CV & bunch of other places. 
